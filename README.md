@@ -2,8 +2,8 @@
 - 👀 I’m interested in Destruction
 - 🌱 I’m currently learning About drestruction
 - 💞️ I’m looking to collaborate on destroying humanity
-- 📫 How to reach me My Secret Kair
-- 😄 Pronouns: DRAGON
+- 📫 How to reach me My Secret Lair
+- 😄 Pronouns: DRAGON/WYRM
 - ⚡ Fun fact: I am a dragon
 
 <!---
